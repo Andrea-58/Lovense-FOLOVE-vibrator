@@ -18,4 +18,6 @@ Powerful vibration, Lower noise(<45db)
 https://user-images.githubusercontent.com/83849573/120287491-df0cd880-c2f1-11eb-9555-a338070ea382.mp4
 
 https://www.amazon.com/dp/B094JD78BD
+![kegel exerciser with APP](https://user-images.githubusercontent.com/83849573/120765390-bed85600-c54b-11eb-87a7-42df21f65558.jpg)
+
 
