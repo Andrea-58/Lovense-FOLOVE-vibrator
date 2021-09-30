@@ -21,3 +21,6 @@ https://www.amazon.com/dp/B094JD78BD
 ![kegel exerciser with APP](https://user-images.githubusercontent.com/83849573/120765390-bed85600-c54b-11eb-87a7-42df21f65558.jpg)
 
 
+![lADPDhYBQ5fnWlDNAljNA8o_970_600](https://user-images.githubusercontent.com/83849573/135395073-735fa432-0832-4ab2-a039-33f719eabdeb.jpg)
+Remote control globally, add your partner to join you, then control your partner's app, thus control the vibrator.
+![1632981377(1)](https://user-images.githubusercontent.com/83849573/135395567-d0cad9ed-3549-49c3-b623-77966fff0fe7.jpg)
